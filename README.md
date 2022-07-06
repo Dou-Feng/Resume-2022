@@ -2,7 +2,7 @@
 
 ### Dou Feng
 
-dou.hust@outlook.com,	Wuhan, Hubei,	17786520904
+dou.hust@outlook.com,	Wuhan, Hubei,	+8617786520904
 
 ## EDUCATION
 
